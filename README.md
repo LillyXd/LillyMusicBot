@@ -1,12 +1,12 @@
-  <p align="center"><a href="https://t.me/venom_bolti_public"> <img src="https://img.shields.io/badge/Credit%20To%20Owner-darkred?style=for-the-badge" width="220" height="38.45"/></a></p>
+  <p align="center"><a href="https://t.me/itslillyxd"> <img src="https://img.shields.io/badge/Credit%20To%20Owner-darkred?style=for-the-badge" width="220" height="38.45"/></a></p>
 
 
 <h2 align="center">
-    ──「  𝐈𝛕ᷟ͢𝚣⃪ꙴ ⋆‌⃝ʜᴏᴛ𓃭 ⃟ᴍᴜsɪᴄ⛦⃕͜༆ 」──
+    ──「 ⏤͟͟͞ ♡︎ ˹ ʟɪʟʟʏ ˼ ❄️✨ 」──
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/8a5171024a3bc5569ee3f.jpg">
+  <img src="https://graph.org/file/78c493486918be184a497.jpg">
 </p>
 
 <p align="center">
